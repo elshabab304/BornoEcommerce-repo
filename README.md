@@ -21,11 +21,19 @@ This Project is still on the process, so stay turned.
 
 ![Screenshot (42)](https://user-images.githubusercontent.com/62197954/186602894-7aea7c6a-5e42-48a5-900c-79e13053d6ca.png)
 
+---------------------------------------------------
+
 ![Screenshot (47)](https://user-images.githubusercontent.com/62197954/186603149-a908612c-eeb6-47bf-8eeb-3f84b59ca276.png)
+
+---------------------------------------------------
 
 ![Screenshot (48)](https://user-images.githubusercontent.com/62197954/186603177-04a83d99-5e68-48c7-abcd-1c16e3c14f49.png)
 
+---------------------------------------------------
+
 ![Screenshot (43)](https://user-images.githubusercontent.com/62197954/186602950-b2829d73-443c-47df-8000-4009841c5774.png)
+
+---------------------------------------------------
 
 
 
